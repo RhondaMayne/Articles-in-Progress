@@ -1,5 +1,4 @@
-# Articles-in-Progress
-Drafts of published articles
+
 Darcy/Atwood [29/06/2025]
 'Murdering Mr. Darcy: Rejecting Alternative Forms of Masculinity in the TV adaptation of Margaret Atwood’s The Handmaid’s Tale'
 
