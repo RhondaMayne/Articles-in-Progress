@@ -1,5 +1,4 @@
 
-Darcy/Atwood [29/06/2025]
 'Murdering Mr. Darcy: Rejecting Alternative Forms of Masculinity in the TV adaptation of Margaret Atwood’s The Handmaid’s Tale'
 
 The choice of name is deliberate. Mr Darcy hails from Jane Austen’s novel *Pride and Prejudice* (1813), where he transforms from an aloof, privileged aristocrat into an introspective and morally evolved figure. Darcy acknowledges his failings, relinquishes his ingrained social prejudice, and performs selfless acts (most notably arranging Lydia Bennet’s marriage, thereby rescuing her family from social stigma), becoming a paragon of an alternative type of masculinity grounded in humility and responsibility. Fitzwilliam Darcy, then, suggests the possibility of male redemption and emotional recalibration, pushing against the tenets of orthodox masculinity. 
